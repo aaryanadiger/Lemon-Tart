@@ -1,0 +1,1 @@
+A lemon tart (French: tarte au citron) is a dessert dish, a variety of tart. It has a pastry shell with a lemon flavored filling.
